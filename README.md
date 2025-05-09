@@ -4,5 +4,5 @@
 ![image](https://github.com/user-attachments/assets/73010aee-cc5f-4e1a-a6aa-c2bf2df507ac)
 
 # Eğer yardıma ihtiyacınız olursa discord.com/users/1150681244510728194 Veya discord.com/users/817463869487185980 yazabilir 
-https://discord.com/invite/dcplus
+https://discord.com/invite/auranest
 
